@@ -1,1 +1,0 @@
-# maniskorp.github.io
